@@ -1,4 +1,4 @@
-## **Indian Council Act of 1892: UPSC Aspirants ke liye ek Deep Dive 🇮🇳✨**
+## **Indian Council Act of 1892: 🇮🇳✨**
 
 Alright aspirants, chalo **Indian Council Act of 1892** ko unpack karte hain, jise **Morley-Minto Reforms** bhi kehte hain (partially, though that term is more famously associated with 1909 reforms, yeh act uski groundwork rakhi thi!) Yeh act India ke self-governance ki taraf journey mein ek significant stepping stone thi, despite uske limitations. Chalo ise break karte hain! 👇
 
