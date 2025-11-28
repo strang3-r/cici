@@ -1,4 +1,4 @@
-### 1784 ka Pitt's India Act 📜: Iske zaroori provisions ka ek detailed examination 🤔
+### 1784 ka Pitt's India Act 📜: Iske zaroori provision 🤔
 
 ___
 
